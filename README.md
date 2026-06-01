@@ -6,7 +6,7 @@ I use GitHub as a working portfolio: selected case studies, service design work,
 
 After 5–6 years as an independent professional and company founder, working across product management, strategic design, service design and UX, I am now transitioning back into salaried roles.
 
-I'm especially interested in projects where business, technology, design and long-term social or environmental impact can meet.
+I'm especially interested in projects where business, technology, design, and long-term social or environmental impact come together.
 
 ## 🔭 I'm currently working on
 
